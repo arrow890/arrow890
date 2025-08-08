@@ -7,8 +7,7 @@
 
 ## If you want to continue out work, please DM me
 
-## Telegram username : @arrow67890
-## discorkd username : arrow071575
+## Telegram username : @arrow789012
 ## email : harrison199454@outlook.com
 
 <!--
